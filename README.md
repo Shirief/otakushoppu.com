@@ -1,0 +1,1 @@
+# otakushoppu.com
